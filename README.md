@@ -30,6 +30,6 @@ I enjoy collaborating with others, exploring new ideas, and continuously improvi
 ---
 
 ### 📫 Connect With Me
-- 💼 [LinkedIn](https://www.linkedin.com/in/bethel-debele)    
+- 💼 [LinkedIn]([https://www.linkedin.com/in/bethel-debele](https://www.linkedin.com/in/bethel-debele-56a000325/))    
 - ✉️ Email: **bethdebele.com**  
 
